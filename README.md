@@ -6,7 +6,7 @@
 
 ###
 
-<h2 align="left">[https://Bigsto.Re/](https://Bigsto.Re/) - Fresh Spamming Tools</h2>
+<h2 align="left">[BigSto.re](https://Bigsto.Re/)  - Fresh Spamming Tools</h2>
 
 ###
 
